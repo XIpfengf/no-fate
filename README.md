@@ -1,2 +1,2 @@
-# 故人已去，此身无尘。
-The deceased is gone, and this body is dustless.
+# 人间枝头，各自乘流。
+The branches of the world,each riding the stream.
